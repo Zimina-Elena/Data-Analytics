@@ -128,6 +128,8 @@
 </ol>
 <br>
 
+## Контактная информация
+- Email: zimina.elenalex@gmail.com
 
 
 
